@@ -25,3 +25,6 @@ Focus on High-Yield Products: Prioritize inventory and promotions for Technology
 
 👤 Author & Analyst
 Gehad Khaled Mohamed | Accounting & Data Analysis Specialist
+
+
+<img width="913" height="249" alt="Screenshot 2026-10-03 045139" src="https://github.com/user-attachments/assets/2a100ede-9344-4ae8-b377-58598306437c" />
